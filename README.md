@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mozkria
+- 👀 I’m interested in codimg and graphic design 
+- 🌱 I’m currently learning factulay of medicine suez canal university 
+- 📫 How to reach me mozkria4@gmail.com
